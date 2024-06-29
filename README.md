@@ -9,7 +9,7 @@ If you're reading this *before* interacting with me, and want to, be wary:
 - **Covering me, cuddling me, sitting on a bench while I'm on it with a friend** will annoy me. I'm prone to escalating stuff unless im already too exhausted to.
 - **If I'm playing splatoon, it will be in my name!** You're free to ask to join and I'll open a pool if I'm not in one already :) Just please don't squidparty the entire time in every match, I get sick of it quickly. I'm almost always cosplaying unless I'm in Tower Control!
 - **I get more nervous when I see others in the same cosplay as me, or dressed as one of my copinglinks** (e.g I'm dressed as my Full Moon Glasses copinglink skin, and someone else is cosplaying her too, I'll probably be watching them a lot from behind my screen. Don't let the knowledge of me observing you bother you though, go wear whatever skin you want ^^)
-- **DNI / DNIUC / DNIUF names** are literal. I don't want you talking to me. If you're wondering: DNI = Do Not interact. -UC = Unless Close. -UF = Unless Friend. (Monika, Bingus, my brother and Guard are close to me. Others on my friends list are just friends and not close. Please keep this in mind if I friend you.)
+- **DNI / DNIUC / DNIUF names** are literal. I don't want you talking to me. If you're wondering: DNI = Do Not interact. -UC = Unless Close. -UF = Unless Friend. (All my online siblings are close. Others on my friends list are just friends and not close. Please keep this in mind if I friend you.)
 - I have a carrd on here, it gives a bit too much information but oh well. I have a list of my comfs and cls on there, just scroll to the bottom of my about me page :)
 
   Now that that's settled, you're welcome to try talking to me! Or if you decide not to, have a good day!
